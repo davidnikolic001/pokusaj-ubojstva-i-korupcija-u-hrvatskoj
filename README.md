@@ -5,6 +5,14 @@
 
 **IF YOU'RE FROM USKOK OR GOVERNMENT, PLEASE LOCATE THIS IP 86.33.66.98, WHICH WAS THE LOCATION OF A HACKER AT 15:36. THE HACKER IS CORRUPT AND WORKING FOR THE GOVERNMENT, OWNING MUP, SOA, USKOK, PREMIER OFFICE, AND PRESIDENT OFFICE EMAILS. THIS HACKER ALLOWS MURDERS FOR THE MAFIA. PLEASE SEND THE NAME TO ME OR CONTACT USKOK! NOT MUP - USKOK PLEASE! BY PHONE! LOCATE IP AS SOON AS POSSIBLE!!
 
+**HACKER IPS: 
+Date: 28.12.2023 UTC+1, Time: 15:36, IP Address: 86.33.66.98
+
+**POSSIBLE PARTNER IPS:
+Date: 28.12.2033 UTC+1, Time: 14:28, IP Address: 80.233.39.238
+Date: 28.12.2023 UTC+1, Time: 14:47, IP Address: 80.233.35.67
+These documents were sent only to Interpol and hacker, so it's possible this data is for Interpol, or someone Interpol gave the link.
+
 **IF YOU WORK FOR USKOK ZAGREB, BE VERY CAREFUL! THIS HACKER ALSO WORKS FOR USKOK ZAGREB AND MAY TRY SOMETHING. OTHERWISE, HE IS FACING 10 YEARS IN PRISON. BE VERY CAUTIOUS AND PLEASE DON'T TRUST. HE CAN ALSO COUNTERFEIT MY EMAIL TO YOU. PLEASE DO NOT TRUST!
 
 **VLADIMIR BAJZEC REFERS TO THE PERSON BEHIND THAT PROFILE AND NAME. IT MIGHT NOT BE HIS REAL NAME. VLADIMIR BAJZEC IS A CORRUPTED HACKER WORKING FOR THE CROATIAN GOVERNMENT OR USKOK ZAGREB. HE OWNS THE EMAILS OF MUP, USKOK, SOA, AND THE PRESIDENT'S OFFICE. HE WORKS FOR THE MAFIA, ALLOWING KILLING PEOPLE FOR MONEY.
@@ -45,10 +53,46 @@
 
 **IF YOU SEE ANY NAME OR SURNAME OF SOME PERSON REGARDING THE CASE, WHICH IS NOT WRITTEN HERE - IT WAS JUST WRITTEN SO THEY GET THE CASE SERIOUS. IT DOES NOT MEAN TRUTH. MAYBE THAT PERSON IS NOT INVOLVED, SO DO NOT FOCUS PLEASE. IS NOT 100% INVOLVED - HAVE INFORMATION ON THE PERSON RESPONSIBLE.
 
-**My contact: David Nikolić, WhatsApp: +385 99 852 3196, email: believeinweb@gmail.com, OIB (Croatian Person Identification Number): 
+**PLEASE NOTE:**
+- There is a special office in Croatia called USKOK, which fights against corruption, but they are also corrupted.
+- I sent my case to USKOK Zagreb, but they deleted the email, putting my life at risk without evidence.
+- SOA refers to the Security Intelligence Agency (www.soa.hr), and they also deleted the email, risking my life without evidence.
 
-**Please note this case is not for the local police or USKOK as they are all corrupted. Please take it! I have nobody to take it - how big is the corruption here! It may be like 100 people in this organization from.
+**I WILL SEND THIS TO MORE ORGANIZATIONS - NOBODY WILL DO SOMETHING!**
+- They protect criminals for salary! You have nobody to call when there is something!
+- They're trying to kill you, and you cannot call anyone! Please take this seriously!
 
-NOTICE: THERE ARE MUCH EVIDENCE AND EVIDENCE OF A PERSON WHICH DID NOT WANT TO GO PUBLIC - WHO KNOWS THE PEOPLE INSIDE THE ORGANIZATION. HE MAY GO PUBLIC AS WELL. INTERPOL ALSO COLLECTED MUCH. FOR USKOK, MY LAWYER WILL BRING OR TEXT ME. PLEASE CONTACT DIRECTLY INTERPOL TO REQUEST EVIDENCE AND PERSON NAME.
+**CASE DETAILS:**
+- [HIDDEN NAME] - Mafia in Zagreb - received money for murder.
+- Dražen Šimović - Paid for murder, from Opuzen, Croatia, lives in Germany. OIB (Croatian Person Identification Number): 78778294069
+- Josip Bjeliš, crime inspector, from Opuzen, works in Dubrovnik. Organized murder, listened to my parents' WhatsApp, replied to my messages, recorded voices without warrant. Tortured my parents for 30 days. Conspiracy. Corruption.
+- Mirjana Stolić, judge in criminal law, works in Split. Organized murder. Conspiracy. Corruption. Designed child porn set-up murder.
+- Vladimir Bajzec, [Facebook Profile](https://www.facebook.com/wlad025), living in Istria. Hacker - possible real person is not this on the profile, works for the police, proven, possibly hiding. Suspected hacker from USKOK Zagreb or Government.
+
+**MODUS OPERANDI:**
+- They contact me via WhatsApp and email, searching for the smallest thing. Warrant comes, then they put something illegal on my PC or at my place. I go to jail, and they make it look like suicide. No legal reason! No warrant!
+
+**USKOK FILE:**
+- Detailed communication with USKOK, proving intentions and data. Many phone numbers included. Intended to catch all criminals. Download the file in Croatian language in the files folder.
+
+**WHAT THEY DO:**
+- A corrupted judge in Zagreb issues a search warrant for the smallest thing, leading to police planting illegal content. Depending on the content, they might kill you in prison or a station - making it look like suicide. This has been happening every day for a month - proven intent.
+
+**MURDER ATTEMPTS:**
+- Crime inspector Josip Bjeliš and judge Mirjana Stolić made a deal with Dražen Šimović to put counterfeit documents on my PC, aiming to suspend my sentence and put me in jail for 5 years.
+- Plans included issuing a warrant for my legitimate website, trying to make it look like adult content, or even child porn. They also tried framing me for drugs (never mentioned it) and staged overdose.
+- They sent counterfeit messages to the mafia in my name, trying to expedite my murder.
+
+**PROTECTIVE MEASURES:**
+- They instructed my family not to say anything or be killed.
+
+**CORRUPTED JUDGE IN ZAGREB:**
+- The judge who issues a warrant for nothing can be found by checking who issued a phone call list or phone spy warrant for my number: +385 99 852 31 96.
+
+**FOR IT PROFESSIONALS:**
+- Hacker behind Vladimir and email: vbstudiologic@gmail.com. Possibly in a very good position. Vladimir's IP is in Istria, but the suspected hacker might be in Zagreb.
+- Take all IP addresses for vbstudiologic@gmail.com. Check for Zagreb IPs. If none, the hacker is using a proxy. Check if the IP address is static, scan open ports, and see if it's a proxy. If so, contact the ISP for that IP and find the connecting IP address. This should reveal a corrupted hacker at a top position in Croatia.
+
+**My contact: David Nikolić, WhatsApp: +385 99 852 3196, email: believeinweb@gmail.com, OIB (Croatian Person Identification Number): -
 
 
