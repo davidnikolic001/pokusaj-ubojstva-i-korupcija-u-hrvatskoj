@@ -67,7 +67,7 @@ These documents were sent only to Interpol and hacker, so it's possible this dat
 - Dražen Šimović - Paid for murder, from Opuzen, Croatia, lives in Germany. OIB (Croatian Person Identification Number): 78778294069
 - Josip Bjeliš, crime inspector, from Opuzen, works in Dubrovnik. Organized murder, listened to my parents' WhatsApp, replied to my messages, recorded voices without warrant. Tortured my parents for 30 days. Conspiracy. Corruption.
 - Mirjana Stolić, judge in criminal law, works in Split. Organized murder. Conspiracy. Corruption. Designed child porn set-up murder.
-- Vladimir Bajzec, [Facebook Profile](https://www.facebook.com/wlad025), living in Istria. Hacker - possible real person is not this on the profile, works for the police, proven, possibly hiding. Suspected hacker from USKOK Zagreb or Government.
+- Vladimir Bajzec, [Facebook Profile](https://www.facebook.com/wlad025), living in Istria. Hacker - possible real person is not this on the profile, works for the police, proven, possibly hiding. Suspected hacker from USKOK Zagreb or Croatian Government.
 
 **MODUS OPERANDI:**
 - They contact me via WhatsApp and email, searching for the smallest thing. Warrant comes, then they put something illegal on my PC or at my place. I go to jail, and they make it look like suicide. No legal reason! No warrant!
@@ -78,10 +78,15 @@ These documents were sent only to Interpol and hacker, so it's possible this dat
 **WHAT THEY DO:**
 - A corrupted judge in Zagreb issues a search warrant for the smallest thing, leading to police planting illegal content. Depending on the content, they might kill you in prison or a station - making it look like suicide. This has been happening every day for a month - proven intent.
 
-**MURDER ATTEMPTS:**
-- Crime inspector Josip Bjeliš and judge Mirjana Stolić made a deal with Dražen Šimović to put counterfeit documents on my PC, aiming to suspend my sentence and put me in jail for 5 years.
-- Plans included issuing a warrant for my legitimate website, trying to make it look like adult content, or even child porn. They also tried framing me for drugs (never mentioned it) and staged overdose.
-- They sent counterfeit messages to the mafia in my name, trying to expedite my murder.
+- **MURDER ATTEMPTS:**
+- Crime inspector Josip Bjeliš, and judge Mirjana Stolić, with Dražen Šimović made a deal... to put some counterfeit documents at my PC, to suspend the suspended sentence. And put me 5 years in jail!
+- He paid mafia in Zagreb, [HIDDEN NAME]. After a little bit, they saw they could lose jobs after some time if proven - so they changed the plan for murder.
+- They were trying to get that warrant for 30 days every day.
+- Here are some plans, I had some website - fully legitimate, they were trying to issue a warrant for that, it was adult content, possibly they will put child porn, I have to get 10 years, and it will look like suicide.
+- Later, they were writing from my friend's WhatsApp, saying about some drugs, I never told something about that, trying to get a warrant, possible murder that will look like an overdose.
+- They were tried many many things, sending counterfeit messages to the mafia, in my name, so they kill me sooner.
+- They even tried to send a message from my mother's phone: "Have you called me today?", and possibly put some drug dealer number and messages behind that, If I said Yes, possible warrant and murder after that.
+- Every day I was receiving WhatsApp messages from my: dad, mother, brother, sister, friends. All without warrant or legal reason. They tortured my family much. Especially Josip Bjeliš.
 
 **PROTECTIVE MEASURES:**
 - They instructed my family not to say anything or be killed.
