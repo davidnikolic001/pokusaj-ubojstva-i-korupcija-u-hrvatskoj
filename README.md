@@ -78,7 +78,7 @@ These documents were sent only to Interpol and hacker, so it's possible this dat
 **WHAT THEY DO:**
 - A corrupted judge in Zagreb issues a search warrant for the smallest thing, leading to police planting illegal content. Depending on the content, they might kill you in prison or a station - making it look like suicide. This has been happening every day for a month - proven intent.
 
-- **MURDER ATTEMPTS:**
+**MURDER ATTEMPTS:**
 - Crime inspector Josip Bjeliš, and judge Mirjana Stolić, with Dražen Šimović made a deal... to put some counterfeit documents at my PC, to suspend the suspended sentence. And put me 5 years in jail!
 - He paid mafia in Zagreb, [HIDDEN NAME]. After a little bit, they saw they could lose jobs after some time if proven - so they changed the plan for murder.
 - They were trying to get that warrant for 30 days every day.
